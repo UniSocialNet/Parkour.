@@ -8,3 +8,4 @@ youtube: https://www.youtube.com/@STORROR
 - [Parkour GONE WRONG on TORPEDO ISLAND 🇵🇱](https://youtu.be/u0RlXRQqelQ)
 - [Parkour Puzzle Mission - DONT GET WET 🇳🇱](https://youtu.be/XI1aEPRmm-I)
 - [STUCK IN underground bunker (CLAUSTROPHOBIC escape) 🇦🇹](https://youtu.be/sGA2jgIwmSY)
+- [STORROR Explore £750 MILLION Abandoned Theme Park 🇹🇷](https://youtu.be/newVEGY21bc)
