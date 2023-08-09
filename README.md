@@ -9,3 +9,4 @@ youtube: https://www.youtube.com/@STORROR
 - [Parkour Puzzle Mission - DONT GET WET 🇳🇱](https://youtu.be/XI1aEPRmm-I)
 - [STUCK IN underground bunker (CLAUSTROPHOBIC escape) 🇦🇹](https://youtu.be/sGA2jgIwmSY)
 - [STORROR Explore £750 MILLION Abandoned Theme Park 🇹🇷](https://youtu.be/newVEGY21bc)
+- [Insane Parkour Water Fountain Spot 🇪🇸](https://youtu.be/t80v4ATFSK0)
